@@ -1,1 +1,1 @@
-Glass Piano inspired from Modern Minimal Ui with Effects
+Glass Piano inspired from Modern Minimal UI with Effects
